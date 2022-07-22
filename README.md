@@ -6,7 +6,6 @@ interactions **OK**! free cuddles & hide ![sdsdf](https://credit.crd.co/assets/i
 
 **dni** basic criteria , idv/sp/dsmp fans + more in rentry
 
-![oh](https://credit.crd.co/assets/images/gallery06/ee8f06e6.png?v=92acf675)
 
 read [rentry](https://rentry.co/akit) + [patreon](https://patreon.com/shinonomeakito) byi
 
