@@ -8,6 +8,6 @@ interactions **OK**! free cuddles & hide ![sdsdf](https://credit.crd.co/assets/i
 
 ![oh](https://credit.crd.co/assets/images/gallery06/ee8f06e6.png?v=92acf675)
 
-[rentry](https://rentry.co/shiinonome) + [patreon](https://patreon.com/shinonomeakito) - feel free to read
+read [rentry](https://rentry.co/shiinonome) + [patreon](https://patreon.com/shinonomeakito) byi
 
 i follow friends & thats it
