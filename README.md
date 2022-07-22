@@ -1,4 +1,4 @@
-**akito** / micro or **yan/yang**
+**akito** / mari
 
 _!_ he/they + unlisted
 
