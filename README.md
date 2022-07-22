@@ -1,4 +1,4 @@
-**akito** or **yan/yang**
+**akito** / micro or **yan/yang**
 
 _!_ he/they + unlisted
 
